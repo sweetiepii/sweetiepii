@@ -1,2 +1,2 @@
-![IMG_1298](https://github.com/user-attachments/assets/88b908d0-dba3-4308-b854-69d8228fb53a)
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　ITS TRUE ^^^^^
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=sweetiepii&label=！&color=f0b23c&style=flat" alt="sweetiepii" /> </p>
+<p align="center"> ⭑　　⭑　　⭑　　⭑　　⭑
