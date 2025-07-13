@@ -1,4 +1,5 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=909090&style=flat" alt="sweetiepii" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=909090&style=flat" alt="sweetiepii" /> <img width="39" height="40" alt="IMG_0782" src="https://github.com/user-attachments/assets/48bef695-6eba-495b-afaa-2e0d60381cc6" />
+
 　
 <p align="center"> ⭑　　⭑　　⭑　　⭑　　⭑
   
