@@ -3,7 +3,7 @@
 　
 <p align="center"> $\text{\color{#FFE175}⭑　　⭑　　⭑　　⭑　　⭑　　⭑　　⭑　　⭑　　⭑}$
 
-$\text{\color{#909090}Im secretly a salamander}$
+$\text{\color{#FF8D31}Im secretly a salamander}$
   
 　<p align="center"> [atabook。](https://sweetiepii.atabook.org/)　　 <img width="45" height="40" alt="Untitled297_20250720100820" src="https://github.com/user-attachments/assets/3933cb03-9da3-4ebc-b71d-98d535ea3c74" /> 　　 [strawpage。](https://honeypii.straw.page/)　　<img width="39" height="40" alt="IMG_0782" src="https://github.com/user-attachments/assets/fba47392-91e8-413f-a197-e293df709be1" />　　 [carrd。](https://honeypii.carrd.co/)
  
