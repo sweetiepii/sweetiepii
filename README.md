@@ -12,6 +12,3 @@ $\text{\color{#FF8D31}Im secretly a salamander}$
 
 
 
-
-
-[where to find me ㄱㅅㄱ](https://rentry.co/stalkmeorsomeshit)
