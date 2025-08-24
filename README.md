@@ -2,10 +2,9 @@
 
 <div align="center"> <img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=E8A1B2&style=plastic" alt="sweetiepii" /> <img width="39" height="40" alt="IMG_0782" src="https://github.com/user-attachments/assets/48bef695-6eba-495b-afaa-2e0d60381cc6" />
 
-<div align="center"><img width="400" height="22" alt="Untitled335_20250824154110" src="https://github.com/user-attachments/assets/ba646d14-2be1-4fbd-911b-4687d95b7f2e" />
 
-
-$\text{\color{#E8A1B2}Im secretly a salamander}$
+ <div align="center"><img width="400" height="22" alt="Untitled335_20250824154110" src="https://github.com/user-attachments/assets/ba646d14-2be1-4fbd-911b-4687d95b7f2e" />
+<div align="center">IM SECRETLY A SALAMANDER!
   
 　<p align="center"> [atabook。](https://sweetiepii.atabook.org/)　　 <img width="45" height="40" alt="Untitled297_20250720100820" src="https://github.com/user-attachments/assets/3933cb03-9da3-4ebc-b71d-98d535ea3c74" /> 　　 [strawpage。](https://honeypii.straw.page/)　　<img width="39" height="40" alt="IMG_0782" src="https://github.com/user-attachments/assets/fba47392-91e8-413f-a197-e293df709be1" />　　 [carrd。](https://honeypii.carrd.co/)
  
