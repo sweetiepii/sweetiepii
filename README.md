@@ -1,7 +1,8 @@
 <div align="center"><img width="400" height="400" alt="Untitled392_20260103155456" src="https://github.com/user-attachments/assets/9ca3f3c3-ea29-425a-a906-36ecfd41bce3" />
 
 
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=E8A1B2&style=plastic" alt="sweetiepii" /> <img width="39" height="40" alt="IMG_0782" src="https://github.com/user-attachments/assets/48bef695-6eba-495b-afaa-2e0d60381cc6" />
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=E8A1B2&style=plastic" alt="sweetiepii" /> <img width="22" height="22" alt="Untitled335_20250824154110" src="https://github.com/user-attachments/assets/c858e854-4a74-48f2-b24f-74c509003df1" />
+
 
 
  <div align="center"><img width="400" height="22" alt="Untitled335_20250824154110" src="https://github.com/user-attachments/assets/ba646d14-2be1-4fbd-911b-4687d95b7f2e" />
