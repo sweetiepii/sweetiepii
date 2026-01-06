@@ -11,7 +11,8 @@
  
  [discord。](https://discord.com/users/1318659924502515744)
 <div align="center"><img width="20" height="20" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/f2f1a7af-838f-4500-bf0f-4c8508f21f20" />
- <div align="center"><img width="300" height="300" alt="Untitled390_20260103161257" src="https://github.com/user-attachments/assets/66bea4a1-0e7a-42f5-8640-9465133fd7f8" />
+ 
+　<div align="center">[<img width="300" height="300" alt="Untitled390_20260103161257" src="https://github.com/user-attachments/assets/66bea4a1-0e7a-42f5-8640-9465133fd7f8" />](https://github.com/malewaifu)
 
 
 <img width="20" height="20" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/f2f1a7af-838f-4500-bf0f-4c8508f21f20" />
