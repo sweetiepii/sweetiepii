@@ -1,4 +1,6 @@
 <div align="center">　
+<div align="center"><img width="240" height="20" alt="IMG_2590" src="https://github.com/user-attachments/assets/ad62cc75-7cb6-49eb-86ae-7166ff38e136" />
+<div align="center">　
 
 
 <div align="center"><img width="20" height="20" alt="IMG_3780" src="https://github.com/user-attachments/assets/2808e256-7f7f-4fa3-ad02-5396ddbe3456" />　<img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=FFA6C3&style=plastic" alt="sweetiepii" />　<img width="20" height="20" alt="IMG_3781" src="https://github.com/user-attachments/assets/24bf9f65-ec97-4684-b5b8-4ab04c4deda0" />
@@ -20,6 +22,6 @@
 <div align="center">　　
 <div align="center"><img width="302" height="80" alt="Untitled706_20260724210258" src="https://github.com/user-attachments/assets/d2b678c0-3e7f-4205-9f47-90a9ac0132d2" />
 
-
-
+<div align="center">　
+<div align="center"><img width="240" height="20" alt="IMG_2590" src="https://github.com/user-attachments/assets/ad62cc75-7cb6-49eb-86ae-7166ff38e136" />
 <div align="center">　　
