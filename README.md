@@ -1,5 +1,6 @@
 　<div align="center"> [click for "copy town" awareness document!](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0)
-
+<div align="center"> ^^^
+<div align="center"> make sure to remain cautious in crowded/populated spaces!!!
  
 <div align="center">　
 <div align="center"><img width="240" height="20" alt="IMG_2590" src="https://github.com/user-attachments/assets/ad62cc75-7cb6-49eb-86ae-7166ff38e136" /><img width="240" height="20" alt="IMG_2590" src="https://github.com/user-attachments/assets/ad62cc75-7cb6-49eb-86ae-7166ff38e136" />
