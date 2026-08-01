@@ -1,4 +1,7 @@
-　<div align="center">　
+<div align="center"><img width="290" height="40" alt="Untitled727_20260802015733" src="https://github.com/user-attachments/assets/0ec894cb-0be7-471a-b5ec-e5c4c3ca9fcd" />
+
+
+ <div align="center">　
 <div align="center">　♡⃞ 
 
 <div align="center"><img width="20" height="20" alt="IMG_3780" src="https://github.com/user-attachments/assets/2808e256-7f7f-4fa3-ad02-5396ddbe3456" />　<img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=FFA6C3&style=plastic" alt="sweetiepii" />　<img width="20" height="20" alt="IMG_3781" src="https://github.com/user-attachments/assets/24bf9f65-ec97-4684-b5b8-4ab04c4deda0" />
@@ -39,5 +42,8 @@ https://cutiepii.carrd.co/)<br>　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀
      </td>
     </tr>
   </table
+
+<div align="center"><img width="290" height="40" alt="Untitled727_20260802015748" src="https://github.com/user-attachments/assets/4b8ec602-be0d-47a6-800e-077a91bbc331" />
+
 <div align="center">　
 　<div align="center">　
