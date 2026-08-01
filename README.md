@@ -1,5 +1,3 @@
-
-
 　<div align="center">　
 <div align="center">　♡⃞ 
 
@@ -27,3 +25,5 @@ https://cutiepii.carrd.co/)<br>　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀
     </tr>
   </table
 
+<div align="center">　
+　<div align="center">　
