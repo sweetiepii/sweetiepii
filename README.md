@@ -4,7 +4,8 @@
  <div align="center">　
 <div align="center">　♡⃞ 
 
-<div align="center"><img width="20" height="20" alt="IMG_3780" src="https://github.com/user-attachments/assets/2808e256-7f7f-4fa3-ad02-5396ddbe3456" />　<img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=FFA6C3&style=plastic" alt="sweetiepii" />　<img width="20" height="20" alt="IMG_3781" src="https://github.com/user-attachments/assets/24bf9f65-ec97-4684-b5b8-4ab04c4deda0" />
+<div align="center"><img width="40" height="40" alt="1BF40A4C-3B5B-470F-A20F-543146A4CAAA" src="https://github.com/user-attachments/assets/fc36fd25-4333-4398-b5b0-fb701d236532" />　　<img src="https://komarev.com/ghpvc/?username=sweetiepii&label=　　(ヽ°□°）　　&color=FFA6C3&style=plastic" alt="sweetiepii" />　　<img width="40" height="40" alt="9132EAF1-967E-4CE8-AC2C-4A2C49FA9C5C" src="https://github.com/user-attachments/assets/ae7895fb-432b-4b98-8ef0-e3dc23f6f11b" />
+
 <div align="center">　⠀
 <div align="center"><table>
     <tr>
