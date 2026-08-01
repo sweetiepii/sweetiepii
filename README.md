@@ -1,4 +1,4 @@
-　<div align="center"> [click for "copy town" document!](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0)
+revamping readme again because why not dude
 <div align="center"> ^^^
 <div align="center"> 
  
