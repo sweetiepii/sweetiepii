@@ -17,7 +17,7 @@
       <td>
       
 　      $${\color{#ffdda2}　  ݂ ᣟ ◌  ݁ ᧓ 　click \space for \space links!　 𓈒 ֯  𓐇 ͡✿}$$　<img src="https://files.catbox.moe/37zzxl.gif" width="20" alt="kyaaah!"><br>
-    　　 [<img src="https://github.com/user-attachments/assets/027aed3c-634d-478b-b246-21d855f1c961" width="80" alt="IMG_4209">](
+    　 [<img src="https://github.com/user-attachments/assets/027aed3c-634d-478b-b246-21d855f1c961" width="80" alt="IMG_4209">](
 https://sweetiepii.straw.page/) [<img src="https://github.com/user-attachments/assets/65f81e25-b4e2-4c8b-956a-834502886421" width="80" alt="IMG_4208">](
 https://sweetiepii.atabook.org/) [<img src="https://github.com/user-attachments/assets/15fef6e1-d693-48a0-81d5-15ad9c60be89" width="80" alt="IMG_4207">](
 https://cutiepii.carrd.co/)<br>　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 
@@ -25,5 +25,12 @@ https://cutiepii.carrd.co/)<br>　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀
     </tr>
   </table
 
+<div align="center"><table>
+    <tr>
+      <td>
+      $${\color{#ffacc3}this \space looks \space　ugly \space on \space phone\space istg 😭😭😭}$$<br>
+     </td>
+    </tr>
+  </table
 <div align="center">　
 　<div align="center">　
