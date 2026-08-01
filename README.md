@@ -1,6 +1,4 @@
-revamping readme again because why not dude
-<div align="center"> ^^^
-<div align="center"> 
+
  
 <div align="center">　
 
